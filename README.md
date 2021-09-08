@@ -1,16 +1,15 @@
-### Hi there 👋
+### Hey, I'm Glace / Frank
+I uhh do shit I think. Not very smart. I just use github in case I need someone smart to help me out
 
-<!--
-**glaceonstan/glaceonstan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Other stuff about me ig:
+-Any pronouns are fine idrc
+-I like Pokémon, Terraria, Friday Night Funkin', and SSBU.
+-The only language I kinda know is Haxe because I experiment with FNF's source code (which is in Haxe) and I've learned some shit from it.
+  -However, I have worked with
+-I am bisexual (not that it matters)
+-I make music (with Ableton)
+### Main Links
+- [Twitter](https://twitter.com/glaceonstan)
+- [Newgrounds](https://glaceonstan.newgrounds.com)
+- [YouTube](https://www.youtube.com/channel/UCUo46QjEalS4__NCKArUl8Q)
+- [Reddit](https://www.reddit.com/u/cockity-peen)
