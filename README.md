@@ -18,3 +18,8 @@ I uhh do shit I think. Not very smart. I just use github in case I need someone 
 - [Newgrounds](https://glaceonstan.newgrounds.com)
 - [YouTube](https://www.youtube.com/channel/UCUo46QjEalS4__NCKArUl8Q)
 - [Reddit](https://www.reddit.com/u/cockity-peen)
+
+
+
+# And for crying out loud
+I'm not a furry. Stop calling me one. Stop asking if I am one. Liking Pokémon doesn't automatically make you a furry.
