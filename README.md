@@ -2,12 +2,17 @@
 I uhh do shit I think. Not very smart. I just use github in case I need someone smart to help me out
 
 ### Other stuff about me ig:
--Any pronouns are fine idrc \n
--I like Pokémon, Terraria, Friday Night Funkin', and SSBU. \n
--The only language I kinda know is Haxe because I experiment with FNF's source code (which is in Haxe) and I've learned some shit from it. \n
-  -However, I have worked with Python \n
--I am bisexual (not that it matters) \n
--I make music (with Ableton) \n
+-Any pronouns are fine idrc
+
+-I like Pokémon, Terraria, Friday Night Funkin', and SSBU.
+
+-The only language I kinda know is Haxe because I experiment with FNF's source code (which is in Haxe) and I've learned some shit from it.
+  -However, I have worked with Python
+  
+-I am bisexual (not that it matters)
+
+-I make music (with Ableton)
+
 ### Main Links
 - [Twitter](https://twitter.com/glaceonstan)
 - [Newgrounds](https://glaceonstan.newgrounds.com)
