@@ -1,4 +1,4 @@
-### Hey, I'm Glace / Frank
+### Hey, I'm Rei / Glace / Frank
 I uhh do shit I think. Not very smart. I just use github in case I need someone smart to help me out
 
 ### Other stuff about me ig:
